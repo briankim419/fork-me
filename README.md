@@ -20,7 +20,7 @@ Lucy Gong
 
 Andrea Keeler
 
-Brian Kim
+Brian Kim: Hello! 
 
 Anne McCormack
 
